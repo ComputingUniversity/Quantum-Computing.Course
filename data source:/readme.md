@@ -1,0 +1,1 @@
+- https://onehack.us/t/free-resources-for-quantum-computing-courses-and-certifications/307492
